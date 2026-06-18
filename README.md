@@ -1,4 +1,4 @@
-## Oi, eu sou o gay
+## Oi, eu sou o Marcelo
 
 ![ghostoftsushima](https://github.com/user-attachments/assets/b02eff9f-4800-4651-b962-3ea5a1c22eca)
 ## Aluno do IFTM
